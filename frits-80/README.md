@@ -1,4 +1,4 @@
-# Notes for United Airlines UA1847
+# Notes for FRITS #80
 
 ## Made with prior communication.
 Before boarding, creating videos onboard, and reviewing this flight, I communicated with and/or asked for permission from the airline. 

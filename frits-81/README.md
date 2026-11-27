@@ -1,4 +1,4 @@
-# Notes for United Airlines UA2330
+# Notes for FRITS #81/UA2330
 
 ## Made with prior communication.
 Before boarding, creating videos onboard, and reviewing this flight, I communicated with and/or asked for permission from the airline. 
