@@ -6,4 +6,5 @@ This does NOT impede the truth values of the scores and reviews written on this 
 As usual, I will never lie, cheat, steal, or tolerate those who do.
 
 Grade report: https://github.com/lonestarflightreviews/flight-review-scores/blob/main/frits-81/gradereport_ua2330.pdf
+
 Trip link: https://youtu.be/PPSCgvFTXXI
