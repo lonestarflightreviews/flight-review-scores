@@ -1,4 +1,4 @@
-# Notes for FRITS #80
+# Notes for FRITS #80/UA1847
 
 ## Made with prior communication.
 Before boarding, creating videos onboard, and reviewing this flight, I communicated with and/or asked for permission from the airline. 

@@ -1,4 +1,4 @@
-# Notes for All Nippon Airways NH118
+# Notes for FRITS #78/NH118
 
 ## Made with prior communication.
 Before boarding, creating videos onboard, and reviewing this flight, I communicated with and/or asked for permission from the airline. 
